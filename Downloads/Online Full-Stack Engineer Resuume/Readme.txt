@@ -1,4 +1,4 @@
-Thanks for dgoing through my Online Software-Engineering Resume
+Thanks for going through my Online Software-Engineering Resume
 
 Name: Resume
 URL: I will update soon/
